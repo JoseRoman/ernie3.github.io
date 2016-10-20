@@ -1,2 +1,2 @@
-# ernie3.github.io
-Coming Soon
+# ernest wilson
+my personal portal to my digital footprints
